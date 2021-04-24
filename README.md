@@ -1,2 +1,5 @@
 # Deveta
-Just my Readme i guess
+Salut mon pote
+Readme en cours
+flemme de traduire
+vas-t'en, merci
